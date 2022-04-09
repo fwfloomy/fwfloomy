@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fwfloomy
+- 👀 I’m interested in coding video games or creating characters in games
+- 🌱 I’m currently learning how to create characters useing multible apps!
+- 💞️ I’m looking to collaborate on Fortnite and Roage Company
+- How to reach me! flo0my@outlook.com
